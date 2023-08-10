@@ -310,4 +310,4 @@ A slight smile tugged at Jeremy’s lips. “I believe a small feast is being pr
 
 “Did you hear that, mom?” Joseph’s dark eyes twinkled with mischief. “Ashlynn, his cook, is making your favorite.”
 
-“I heard,” Amber replied, and her stomach gave a small heave of protest.
+“I heard,” Amber replied, and her stomach gave a small heave in protest.
