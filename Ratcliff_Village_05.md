@@ -78,7 +78,7 @@ Cody stayed calm, recognizing Jeremy’s battle and respecting it without challe
 
 “Our visitors should be greeted with strength. James has earned his place in our guard.”
 
-“Fine,” Jeremy agreed, irritated that his distrust was based on personal misjudgments of the past. “But make sure he knows to stay away from Amber. I trust neither James nor Sean around my wife, and I want him watched.”
+“Fine,” Jeremy agreed, irritated that his distrust was based on personal misjudgments of his past. “But make sure he knows to stay away from Amber. Ultimately, James’ loyalty is to his own family, not ours, and his sister's mind is becoming more and more disturbed. I trust neither James nor Sean around my wife, and *I want him watched*.”
 
 Cody gave a sharp nod. “I’ll take care of it.”
 
