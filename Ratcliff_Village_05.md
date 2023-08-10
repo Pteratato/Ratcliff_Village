@@ -1,42 +1,56 @@
 # Chapter 5
 
-Cody circled the training yard in a defensive crouch that demonstrated perfect balance and control. A group of young faces, ages ranging from four years to twelve years stood in a half-moon absorbing his instruction.
+Cody circled the training yard in a defensive crouch that demonstrated perfect balance and control. A group of young faces, ages ranging from four years to twelve years, stood in a half-moon absorbing his instruction.
 
-Jeremy watched with a heavy heart; eight children total and eight precious gifts for a dying race-all unable to shift form. Under the Guardians rule they would not survive.
+Jeremy watched with a heavy heart; eight children total and eight precious gifts for a dying race -- all unable to shift form. Under the Guardians rule they would not survive.
 
-Cody held no weapons, only his hands. He wore sweat pants and sneakers leaving his chest bare. A new tattoo of a brown owl with stretched wings covered his torso from collar bone to navel. A cool breeze carried the faint stench of fear. The children have been warned what might be coming.
+Cody held no weapons, only his hands. He wore sweatpants and sneakers, leaving his chest bare. A new tattoo of a brown owl with stretched wings covered his torso from collarbone to navel. A cool breeze carried the faint stench of fear. The children have been warned about what might be coming.
 
-A few faces turned and noticed their leader then instantly looked down in respect.
+A few faces turned and noticed their leader, then instantly looked down in respect. Cody pivoted to meet Jeremy’s stare, his silver eyes piercing the distance. The brothers shared a silent message of sadness.
 
-Cody pivoted to meet Jeremy’s stare, his silver eyes piercing the distance. The brothers shared a silent message of sadness.
+*Too soon.*
 
-Too soon
+*Too innocent.*
 
-Too innocent
+*Too weak.*
 
-Too weak
+It brought Jeremy back to another time; to his homeland, to a place where the forsaken cowered in forbidden forests or suffered under Guardian rule...
 
-It brought Jeremy back to another time; to his homeland, to a place where the forsaken cowered in forbidden forests or suffered under Guardian rule…
+---
 
-The waning months of winter were grave times for the outcasts who hid within the northern forest of Cymeru when the earth held no succor or color, not even the shelter of leaves to help conceal their dwellings from the Guardians. Thus, when a shout rang out within their camp alerting of approaching visitors, Jeremy had good cause for concern.
+The waning months of winter were grave for the outcasts who hid within the forest of Cymeru when the earth held no succor or color, not even the shelter of leaves to help conceal their dwellings from the Guardians. Thus, when a shout rang out within their camp alerting of approaching visitors, Jeremy had good cause for concern.
 
-A visitor drew closer. A woman but barely so – more like a girl. She stumbled on their camp clutching a swaddled infant to her chest.
+A visitor drew closer. A woman, but barely so -- closer to a girl. She stumbled into their camp clutching a swaddled infant to her chest.
 
-Jeremy stepped into a clearing to draw the girls attention away from where their young were kept, others followed, both in human and wolf form as curiosity overcame caution. Or perhaps like Jeremy they sensed another victim of Guardians cruel hand. Dirt and mire covered the girl’s naked form; the scent clung to her skin along with more offensive odors. Hair the color of harvest wine hung in ragged clumps to her frail waist; he could only wonder at its true splendor, if it displayed such a color under the filth.
+Jeremy stepped into a clearing to draw the girl's attention away from where their young were kept, and others followed, both in human and wolf form as curiosity overcame caution. Or perhaps, like Jeremy, they sensed another victim of the Guardians' cruel hand. Dirt and mire covered the girl’s naked form, the scent clinging to her skin along with more offensive odors. Hair the color of harvest wine hung in ragged clumps down to her frail waist; he could only wonder at its true splendor, if it displayed such a color under the filth.
 
-“What is your name child?” Jeremy searched indigo eyes for a response but found none. They were too calm, like the great sea after a violent storm when monsters continued to swim within its murky depths. “Her name is Tacita,” Akasha skirted around the crowd and approached the girl. “Get back,” she ordered shooing everyone away, but only a few listened. “Her family serves the Guardian Rhen; last time I knew her mother was with child.
+“What is your name, child?” Jeremy searched indigo eyes for a response, but found none. They were too calm, like the great sea after a violent storm when monsters continued to swim within its murky depths. 
 
-Too little time had passed since Jeremy had removed Akasha from Melanie’s influence. She had recent knowledge about the families who were forced to serve the Guardians; families with daughters, sons, and siblings who were unable to draw power from the forest. With soothing whispers Akasha eased the bundle from Tacita’s embrace gently unraveling the woolen cloth. “A wolf,” Akasha said softly, a Blaidd.” Somber blue eyes met Jeremy’s and he knew before she confirmed, “Tis dead.” Tacita crumbled to the ground as if hearing the truth spoken aloud stole her strength, or more aptly –it was the final violation of her will. “They’re all dead” she whispered on a broken sigh.
+“Her name is Tacita,” Akasha skirted around the crowd and approached the girl. “Get back!” She ordered, shooing everyone away, but only a few listened. “Her family serves the Guardian Rhen; last time I knew, her mother was with child.
+
+Too little time had passed since Jeremy had removed Akasha from Melanie’s influence. She had recent knowledge about the families who were forced to serve the Guardians; families with daughters, sons, and siblings who were unable to draw power from the forest. With soothing whispers, Akasha eased the bundle from Tacita’s embrace and gently unraveled the woolen cloth. 
+
+“A wolf,” Akasha said softly. "A Blaidd.” 
+
+Somber blue eyes met Jeremy’s, and he knew before she confirmed, “'tis dead.” 
+
+Tacita crumbled to the ground as if hearing the truth spoken stole her strength or, more aptly, it was the final violation of her will. “They’re all dead,” she whispered brokenly.
 
 Jeremy removed his outer cloak and wrapped it around the girl, but made no further attempt to console her, sensing she would recoil from his touch. “Who is dead, Tacita?”
 
-“My mother, my brothers...”The stench of fear and anguish filled the air, more vile than the other odors that stuck to her skin especially when coming from this young. “Rhen killed them all…because of the Blaidd.” But another scent rose above the others. It hinted of vengeance, of power, and of hatred.
+“My mother, my brothers...” The stench of fear and anguish filled the air, more vile than the other odors that stuck to her skin, especially when coming from someone this young. “Rhen killed them all... because of the Blaidd.” But another scent rose above the others. It hinted of vengeance, of power, and of hatred.
 
-She’d been allowed to live Jeremy knew full well because of the wolf he sensed within her. Had the Guardians not claimed her innocence before? They had done so this night, if not from her body – then from her soul.
+She’d been allowed to live, Jeremy knew full well, because of the wolf he sensed within her. Had the Guardians not claimed her innocence before? They had done so this night, if not from her body, then from her soul.
 
-Practice what I taught you, Cody announced, snapping Jeremy back to the present. His brother dismissed the students. “We’ll meet same time tomorrow.” After the sounds of young voices lessened in distance he strolled over to his brother. “Any word yet from your wife, brother? Thankful for the distraction, Jeremy opened the window of his cell phone then snapped it shut. “No.”
+---
 
-I could smell the fear from our people this morning.” The disgust in him referred to the village meeting, not the children.
+"Practice what I taught you," Cody announced, snapping Jeremy back to the present. His brother dismissed the students. “We’ll meet same time tomorrow.” 
+
+After the sounds of young voices lessened in the distance, he strolled over to his brother. “Any word yet from your wife, brother?" 
+
+Thankful for the distraction, Jeremy opened the window of his cellphone, then snapped it shut. “No.”
+
+"I could smell the fear from our people this morning.” The disgust in Cody referred to the village meeting, not the children.
 
 “Those modern times made us complacent. That is why an alliance is necessary.” Jeremy folded his arms and looked across the landscape of his territory. “I’ve made the calls. All leaders have agreed to come, except Mariska and Mouse. They will be sending representatives. “
 
