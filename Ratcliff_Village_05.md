@@ -52,7 +52,7 @@ Thankful for the distraction, Jeremy opened the window of his cellphone, then sn
 
 "I could smell the fear from our people this morning.” The disgust in Cody referred to the village meeting, not the children.
 
-“Those modern times made us complacent. That is why an alliance is necessary.” Jeremy folded his arms and looked across the landscape of his territory. “I’ve made the calls. All leaders have agreed to come, except Mariska and Mouse. They will be sending representatives. “
+“These modern times made us complacent. That is why an alliance is necessary.” Jeremy folded his arms and looked across the landscape of his territory. “I’ve made the calls. All leaders have agreed to come, except Mariska and Mouse. They will be sending representatives. “
 
 “Did any of them reveal if the Guardians marked their territory?”
 
@@ -60,9 +60,9 @@ Jeremy shook his head. “Our conversations were guarded; no confirmations were 
 
 He was not the only leader distrusting of modern technology. “We’ll learn more Friday, when we talk in person. Until then, we need to prepare. Have you done as I asked?”
 
-Cody gave him a sharp nod. “Gabby and Brooke will take the area right behind the lake house. Tiern is set to guard the north ridge. Declan and Tolin will supervise a crew within the forest. Chelsea has the cast range, Joe and Caleb will cover the main house with James at the main gate. The strongest has been assigned to protect their most vulnerable spots, the lake house being the highest priority at this time.”
+Cody gave him a sharp nod. “Gabby and Brooke will take the area right behind the lake house. Tiern is set to guard the north ridge. Declan and Tolin will supervise a crew within the forest. Chelsea has the cast range, Joe and Caleb will cover the main house with James at the main gate. The strongest has been assigned to protect our most vulnerable spots, the lake house being the highest priority at this time.”
 
-“I’ve asked the leaders not to draw attention when they arrive and keep their guards to a minimum.” It was the second request that bothered Jeremy. More than one leader had been selected to concede Helen especially. “Some may send scouts, he warned, if so, we must capture – not harm.”
+“I’ve asked the leaders not to draw attention when they arrive and to keep their guards to a minimum.” It was the second request that bothered Jeremy. More than one leader had been selected to concede, Helen especially. “Some may send scouts, if so, we must capture -- not harm.”
 
 Cody snorted.
 
@@ -72,25 +72,25 @@ Jeremy pressed his point. ”Keep James with you.”
 
 Pressure built along Jeremy’s spine in an all too familiar ache. The refusal of a direct command annoyed his beast. Two dominants in one territory had always been a tentative balance, managed only by loyalties stronger than the instinct of the wolf.
 
-He took a deep breath, “The human, the brother must remain in control the whole time. Explain your reasoning’s.”
+He took a deep breath. The human, the *brother*, must remain in control the whole time. "Explain your reasonings.”
 
-Cody stayed calm recognizing Jeremy’s battle, respecting it without challenge.
+Cody stayed calm, recognizing Jeremy’s battle and respecting it without challenge.
 
 “Our visitors should be greeted with strength. James has earned his place in our guard.”
 
-“Fine,” Jeremy agreed, irritated that his distrust was based on personal misjudgments of his past. “But make sure he knows to stay away from Amber;” fearing Sean has clouded her brother’s judgment.” Ultimately, James’ loyalty would have been towards his own family and not his, and as Sean’s younger brother his judgment towards Amber might be compromised. ”I don’t trust either wolf around my wife, especially Sean. Her mind had become disturbed. And because of him, her hatred toward Amber was justified. I want him watched.”
+“Fine,” Jeremy agreed, irritated that his distrust was based on personal misjudgments of the past. “But make sure he knows to stay away from Amber. I trust neither James nor Sean around my wife, and I want him watched.”
 
 Cody gave a sharp nod. “I’ll take care of it.”
 
-“Send Michael.” Jeremy added. Of all the guards Michael has been the first to notice Sean’s odd behavior and one of the few who had not succumbed to her enticements. “Michael is a good choice. Sarah can help cover his watch.”
+“Send Michael,” Jeremy added. “Michael is a good choice. Sarah can help cover his watch.”
 
-Somewhat appeased Jeremy fingered his cell, flipped the window opened and checked the time and then pushed a button, making sure the thing worked, when a green number appeared on the small screen he snapped it closed.
+Somewhat appeased, Jeremy fingered his cell, flipped the window opened, and checked the time. He then pushed a button, making sure the thing worked, and when a green number appeared on the small screen he snapped it closed.
 
-Cody’s eyes followed Jeremy’s motions. “Nervous brother?”
+Cody’s eyes followed Jeremy’s motions. “Nervous, brother?”
 
 “Bug off!”
 
-He chuckled, a rare sound of genuine amusement, “Ah, it’s a good day if I can get a rise out of you.” His tone lowered although his grin remained. “I’m anxious to meet my nephew.”
+“Ah, it’s a good day if I can get a rise out of you,” he chuckled, a rare sound of genuine amusement. His tone lowered but his grin remained. “I’m anxious to meet my nephew.”
 
 Jeremy turned to the only person allowed to see his concern. “I pray he is well.”
 
@@ -100,53 +100,55 @@ Cody’s smile faded as he placed a hand on Jeremy’s shoulder and squeezed. �
 
 “We’ll make him strong.”
 
-“I should have listened to you that night.” Jeremy voiced his regret aloud for the first time, wondering with some distain at his recent lapses into personal reflection.” Amber wasn’t ready to see my wolf. I thought…” He shrugged. “I thought it would help her understand. Koko handled it much better.”
+“I should have listened to you that night,” Jeremy voiced his regret aloud for the first time, wondering with some distain at his recent lapses into personal reflection. "Amber wasn’t ready to see my wolf. I thought… I thought it would help her understand. Koko handled it much better.”
 
-A shadow passed over Cody’s face with the mention of his dead wife’s name. “Koko came from a different people. A better people.” His tone suggested of Koko’s family, a band of traveling gypsies. Like many in the late 1800’s they had come to America for the opportunity to wield their trades. “She understood the power of Earth. Her mind was open, not closed like these modern races.”
+A shadow passed over Cody’s face with the mention of his dead wife’s name. “Koko came from a different people. A better people.” His tone suggested of Koko’s family, a band of traveling Gypsies. Like many in the late 1800’s they had come to America for the opportunity to wield their trades. “She understood the power of Earth. Her mind was open, not closed like these modern races.”
 
 There was pain in his voice when he spoke of her, even now after sixty years of mourning.
 
 “But,” Cody continued, “I don’t think revealing the wolf was your greatest mistake.”
 
-Only his brother would dare to make such a comment, the exact reason
-
-Jeremy supposed he had chosen him for this. “And what do you think was my greatest mistake?”
+Only his brother would dare to make such a comment, but Jeremy supposed he had chosen him for this. “And what do you think was my greatest mistake?”
 
 “You voicing your intentions to keep your child. I remember that night well. I didn’t sense real fear from Amber until that moment.” Cody shrugged. “You should have just kept your mouth shut and done what was necessary when the time came.”
 
-Jeremy didn’t respond. Cody wouldn’t understand because he had never been truly mated, but only a butthead or an idiot would remind him of that fact. Cody honored Koko as his mate of choice, their union sadly was childless. Once the wolf intervened and a child was conceived, choice was just a pretty word for barbs and philosophies. The human heart can be reserved, even controlled but the animal only knows, wants, and needs.
+Jeremy didn’t respond. Cody wouldn’t understand; Cody honored Koko as his mate of choice, but their union had been childless, and Jeremy would've had to have been a jerk or an idiot to remind his brother of that. Once the wolf intervened and a child was conceived, *choice* was just a pretty word for bards and philosophers. The human heart can be reserved, even controlled, but the animal only *knows, wants,* and *needs*.
 
-He had felt Amber’s intentions that night and her hatred. Nothing in the world or otherworld at that point could have kept him silent.
+He had felt Amber’s intentions that night and her hatred. Nothing in this world or the otherworld at that point could have kept him silent.
 
-The shrill ring of his phone made him tense, a shot of scotch preferable to the unnatural sound.
+The unnaturally shrill ring of his phone made him tense.
 
 “Yes?”
 
- “Hi, it’s me…Amber.” As if she needed to identify herself.
+ “Hi, it’s me... Amber.” 
+ 
+ As if she needed to identify herself.
 
-“I know. I saw the number.” A tactic snarl of satisfaction spread through his limbs. That wanting never receded, regardless of the other mates betrayals.
+“I know, I saw the number.” A tactic snarl of satisfaction spread through his limbs. That wanting never receded, regardless of the other mate's betrayals.
 
 “I promised to call you when we reached Maine. We are in Saco. We should be in Ratcliff about four. Earlier than expected.”
 
 “The lake house is ready for you.”
 
-“Thank you. And just so you know…” she paused, her voice dropped to a whisper, “my mother is with me.”
+“Thank you. And just so you know...” she paused, her voice dropped to a whisper, “my mother is with me.”
 
-“Your mother?” Jeremy frowned turning his back to Cody’s raised eyebrows. “How much does she know?”
+“Your mother?” Jeremy frowned, turning his back to Cody’s raised eyebrows. “How much does she know?”
 
 “Not much.” Her voice took on an odd tone, highly pitched. “Nothing of significance...”
 
 “Do you think it was wise to bring her now?”
 
-“No,” she admitted
+“No,” she admitted.
 
 “Then why do it?” The last thing Jeremy needed at this point was another woman in his territory, especially Amber’s mother.
 
 “You don’t know my mother.”
 
-Ratcliff village had the appearance of a normal town with a post office, clinic, homes and stores. Its secrets well hidden from unsuspecting visitors, as Amber had learned all too well.
+---
+
+Ratcliff Village had the appearance of a normal town with a post office, clinic, homes, and stores. Its secrets were well hidden from unsuspecting visitors, as Amber had learned all too well.
  
-Her heart raced as she drove past the brick church that marked the entrance to the wilderness reserve where sidewalks ended and asphalt became gravel, where forest and lakes remained forever wild in a valley under a snow capped mountain and where Jeremy waited not too far away.
+Her heart raced as she drove past the brick church that marked the entrance to the wilderness reserve where sidewalks ended and asphalt became gravel, where forest and lakes remained forever wild in a valley under a snow-capped mountain, and where Jeremy waited not too far away.
 
 “How much longer?” her mother asked for the twentieth time in the last half an hour. “I need to go to the bathroom.”
 
@@ -156,101 +158,107 @@ Amber kept her eyes on the dirt road pitted with puddles.
 
 “You said that a half an hour ago.”
 
-“It’s just up this gravel road Mother.” Amber said and patted her shoulder. She almost felt sorry for Jeremy.
+“It’s just up this gravel road, Mother,” Amber said and patted her shoulder. She almost felt sorry for Jeremy.
 
-“This is it. We’re here.” She braced herself as the car bounced over ruts and holes in the driveway, of sorts, protected by a canopy of tall pine trees. She parked her Ford Taurus alongside a black Chevy avalanche.
+“This is it. We’re here.” She braced herself as the car bounced over ruts and holes in the driveway of sorts, protected by a canopy of tall pine trees. She parked her Ford Taurus alongside a black Chevy Avalanche.
 
 Her heart pounded so hard she felt physically ill. The truck no doubt belonged to Jeremy.
 
-Amber forced herself to get out of the car, the scent of pine and forest assaulted her senses and her memories. She tried to calm her emotions, tried to keep those memories at bay, but in the end her pitiful attempt to shut out the past crumbled under the weight of a simple sound.
+Amber forced herself to get out of the car, the scent of pine and forest assaulting her senses and her memories. She tried to calm her emotions, tried to keep those memories at bay, but in the end her pitiful attempt to shut out the past crumbled under the weight of a simple sound.
 
-The soft rush of miniature rapids could be heard in the distance, the water, high from melting snow, bubbling over rocks and fallen trees, taking her back to the last time she’d been in these wood, the memory still fresh in her mind…
+The soft rush of miniature rapids could be heard in the distance, the water, high from melting snow, bubbling over rocks and fallen trees, taking her back to the last time she’d been in these wood, the memory still fresh in her mind...
+
+---
 
 The stench of skunk surrounded her, making her eyes water and her lungs burn. Amber pressed her cheek against the rotting walls of her narrow shelter. How long had it been? Minutes? Hours? It was quiet, too quiet, as if someone or something had silenced the forest.
 
-She dared not move, dared not breathe. The soft padded steps of a four legged beast soon closed in, circled around her and then paused.
+She dared not move, dared not breathe. The soft, padded steps of a four-legged beast soon closed in, circled around her, and then paused.
 
-Amber was trapped, unable to move, her hiding place became her prison. She tried to scramble out but her position was awkward, and the wolf had anticipated her move: the log crumbled just before a sharp pain ran down her side.
+Amber was trapped, unable to move, her hiding place becoming her prison. She tried to scramble out but her position was awkward, and the wolf had anticipated her move; the log crumbled just before a sharp pain ran down her side.
 
-Her breath lodged in her throat, stunned as nerve endings screamed. Her vision blurred as she plunged forward onto the wet forest floor. Pine needles and leaves stuck to her face, the cold earth keeping her lucid reminding her to fight and to not give up. She rolled over on her non injured side, using her good leg to scoot backward against a tree. Holding her belly and sucking in a deep breath of air as she lifted her eyes to her attacker.
+Her breath lodged in her throat, stunned as nerve endings screamed. Her vision blurred as she plunged forward onto the wet forest floor. Pine needles and leaves stuck to her face, the cold earth keeping her lucid, reminding her to fight and to not give up. She rolled over on her uninjured side, using her good leg to scoot backward against a tree. Holding her belly and sucking in a deep breath of air, she lifted her eyes to her attacker.
 
-A red wolf stared back, eye level to her sitting position, smaller than Jeremy, with softer lines and golden eyes filled with hatred, too much hatred for mercy.
+A red wolf stared back, eye level with her sitting position, smaller than Jeremy, with softer lines and golden eyes filled with hatred. Too much hatred for mercy.
 
-Amber recognized her death in those golden eyes and in a moment of calm clarity her brain adjusted to her predicament. These were wolves. They did not show compassion. They did not respect fear, prey showed fear.
+Amber recognized her death in those golden eyes and in a moment of calm clarity her brain adjusted to her predicament. These were wolves. They did not show compassion. They did not respect fear; *prey* showed fear.
 
 They understood dominance.
 
-Amber lowered her chin and leveled a glare at the female wolf. “If you harm me…you harm Jeremy’s child.”
+Amber lowered her chin and leveled a glare at the female wolf. “If you harm me... you harm Jeremy’s child.”
 
-In response, the wolf lifted her head to the sky. Amber sensed the air thickening as if the earth stilled to give us breath, its very life source to another. And again, in a surreal show of melted fur and broken bone a being changed its form, this time from a wolf to a woman.
+In response, the wolf lifted her head to the sky. Amber sensed the air thickening as if the Earth had stilled to give its breath, its very life source, to another. And again, in a surreal show of melted fur and broken bone, a being changed its form, this time from a wolf to a woman.
 
-Amber unfortunately recognized that woman. Sean unfolded into a standing position, naked and ashamed, tall and lithe like an athlete, wet strands of dark red hair trailed over pale skin as she stared down at Amber.
+Amber unfortunately recognized that woman. Sean unfolded into a standing position, naked and unashamed, tall and lithe like an athlete, wet strands of dark red hair trailing over pale skin as she stared down at Amber.
 
-“Look at you,” Sean sneered, “So weak, so…human.” Full lips peeled back over small white teeth, wolfs behavior despite the human form. “I don’t believe that child you carried was fathered by Jeremy.”
+“Look at you,” Sean sneered, “So weak, so... *human.*” Full lips peeled back over small white teeth; wolf behavior despite the human form. “I don’t believe that child you carried was fathered by Jeremy.”
 
-Amber was about to dispute the vile accusation but something in Sean’s voice stopped her, something desperate, and a little…unstable.
+Amber was about to dispute the vile accusation but something in Sean’s voice stopped her, something desperate, and a little unstable.
 
-Amber stood slowly; her wounded leg threatened to crumble but eventually held her weight. She stole a quick glance at her shredded jeans covered in blood. Just a flesh wound, she prayed, because she needed the ability to run.
+Amber stood slowly; her wounded leg threatened to crumble but managing to hold her weight. She stole a quick glance at her shredded jeans covered in blood. Just a flesh wound, she prayed, because she needed the ability to run.
 
 She wanted freedom, not death; she wanted her baby to live. And a lie was such an easy price to pay for what Amber wanted.
 
-“Your right,” Somehow she sensed those words were her key to freedom, my baby isn’t Jeremy’s.”
+“You're right.” Somehow she sensed those words were her key to freedom. "My baby isn’t Jeremy’s.”
 
-A triumph smile touched Sean’s lips. “Then you don’t belong here.”
+A triumphant smile touched Sean’s lips. “Then you don’t belong here.”
 
-“No I don’t.” Amber almost laughed at how much she agreed with these words.
+“No, I don’t.” Amber almost laughed at how much she agreed with these words.
 
 “You are not worthy of Jeremy. You’re not strong enough to lead by his side. You’re not strong enough to protect us.”
 
 Sensing victory, she kept her voice calm. “Let me leave and someone more deserving can have him.”
 
-A predatory light enters Sean’s golden eyes and a different plan danced in those eerie depths of the wolf within, finding it more appealing. “Jeremy believes my child is his.” Amber reminded her.
+A predatory light entered Sean’s golden eyes and a different plan danced in the eerie depths of the wolf within.
 
-The interstate was just up ahead. It was then, with the sound of freedom within her reach that Amber paused as her heart cried out, because her heart, despite everything, belonged to Jeremy. No matter what he was, no matter what he’d done, she loved him.
+“Jeremy believes my child is his,” Amber reminded her.
+
+The interstate was just up ahead. It was then, with the sound of freedom within her reach, that Amber paused as her heart cried out, because her heart, despite everything, belonged to Jeremy. No matter what he was, no matter what he’d done, she loved him.
 
 She would always love him.
 
-And for a moment, just a moment, she wondered if she should conform to his will, to this magickal world that hated her humanity. To live in a mansion of stone, to sleep in Jeremy’s bed, was such a prison so bad?
+And for a moment, just a moment, she wondered if she should conform to his will, to this magickal world that hated her humanity. To live in a mansion of stone, to sleep in Jeremy’s bed; was such a prison so bad?
 
-She wrapped her arms around her belly and cried hating the emotional weakness that Jeremy or perhaps pregnancy’s brought on. Hot tears streamed down her frozen cheeks, and her heart felt the loss to her very core. But in the end, no man was worth her soul. No man was worth living in fear for her child.
+She wrapped her arms around her belly and cried, hating the emotional weakness that Jeremy or perhaps pregnancy had brought on. Hot tears streamed down her frozen cheeks, and her heart felt the loss to her very core. But in the end, no man was worth her soul. No man was worth living in fear for her child.
 
-Her decision made, she wiped away her retched tears and crawled forward to the sound of freedom.
+Her decision made, she wiped away her wretched tears and crawled forward to the sound of freedom.
 
-A car door slammed shut snapping Amber back to the present, and the sound of rushing water faded in the distance.
+---
 
-The lake house loomed above her, rectangular, like a colonial constructed with fieldstone, mortar and large pine beams. It still had its original moveable shutters, painted black to match the front paneled door. Ivy branches snaked their way up the front porch, dormant still, even though the calendar had already proclaimed spring.
+A car door slammed shut, snapping Amber back to the present, and the sound of rushing water faded in the distance.
 
-It had been built on an angle, facing the mountain. The afternoon sun cast a deceivingly warm glow across Fiddlehead Lake, just a few yards away. Smoke rose from the chimney letting her know, he was in there waiting.
+The lake house loomed above her, rectangular, like a colonial constructed with fieldstone, mortar, and large pine beams. It still had its original moveable shutters, painted black to match the paneled front door. Ivy branches snaked their way up the front porch, dormant still, even though the calendar had already proclaimed spring.
+
+It had been built on an angle, facing the mountain. The afternoon sun cast a deceivingly warm glow across Fiddlehead Lake, just a few yards away. Smoke rose from the chimney letting her know that he was in there, waiting.
 
 Amber had the distinct urge to vomit. Intense anxiety had that effect on her.
 
-“This is so cool.” Joseph exclaimed beside her, eyes wide, taking it all in. “That’s Fiddlehead Lake then?” He leaned his head toward the large body of water, judging the angle of the afternoon sun. He had been forced to study maps of the area, to learn every escape route, just in case.
+“This is so cool,” Joseph exclaimed beside her, eyes wide, taking it all in. “That’s Fiddlehead Lake. then?” He leaned his head toward the large body of water, judging the angle of the afternoon sun. He had been forced to study maps of the area, to learn every escape route, just in case.
 
-Amber nodded. “We’re at the southern part of the Lake.”
+Amber nodded. “We’re at the southern part of the lake.”
 
 He pointed toward a grove of white birch trees in the distance. “That’s where the lake feeds into Wajo Stream, which leads to the Pemiscot River.”
 
-“Yes,” she said with approval. “Ratcliff Village is past the entrance of your father’s territory. There’s a clinic five miles north if you continue along the road we entered on, then your father’s house and another building for guards. They all circle along the outskirts of the wilderness reserve, and everything connects to the mountain –“
+“Yes,” she said with approval. “Ratcliff Village is past the entrance of your father’s territory. There’s a clinic five miles north if you continue along the road we entered on, then your father’s house and another building for guards. They all circle along the outskirts of the wilderness reserve, and everything connects to the mountain--“
 
-“- and the best way out is through the waterways,” he finished. “Don’t worry mom. I remember everything you’ve told me.”
+“--and the best way out is through the waterways,” he finished. “Don’t worry, mom. I remember everything you’ve told me.”
 
-Amber ran her hand down his arm needing to touch him, fighting every urge to not throw him back in the car and drive away before she lost him in the other world forever. But another fear, a greater fear, kept her grounded. “I love you.”
+Amber ran her hand down his arm, needing to touch him, fighting every urge not to throw him back in the car and drive away before she lost him in the other world forever. But another fear, a greater fear, kept her grounded. “I love you.”
 
-“Love you too Mom.”
+“Love you too, mom.”
 
 She had professed these words so many times over the years that his response was automatic. She didn’t care. She just needed to hear it.
 
 The front door opened and Jeremy walked out. She straightened, letting her hand drop away from Joseph’s arm.
 
-Jeremy remained silent, an announcement unnecessary. He’s mere presence demanded attention. He wore jeans and a black flannelled shirt that hugged his massive frame. His once shoulder length golden waves had been cut business short, only to make him look harder, more severe.
+Jeremy remained silent, an announcement unnecessary. His mere presence demanded attention. He wore jeans and a black flannel shirt that hugged his massive frame. His once shoulder-length golden waves had been cut business short, only serving to make him look harder, more severe.
 
 Dark eyes landed on her; black as sin, absent of light and utterly compelling as if all the mysteries of the universe waited in their depths for someone strong enough to handle the darkness.
 
-Or, though, she had thought once when she was young and stupid and still believed in romance and happy endings. She wasn’t so young any- more, and far less stupid, and she knew way too much about the darkness to hope for a happy ending.
+Or so she had thought once, when she was young and stupid and still believed in romance and happy endings. She wasn’t so young any- more, and far less stupid, and she knew way too much about the darkness to hope for a happy ending.
 
-And yet, those eyes continue to hold her captive with unspoken emotion. It was Jeremy who broke the contact fast – not her. His expression however changed upon seeing his son for the first time. It softened into something almost…vulnerable.
+And yet, those eyes continued to hold her captive with unspoken emotion. It was Jeremy who broke the contact first, not her. His expression, however, changed upon seeing his son for the first time. It softened into something almost... vulnerable.
 
-Joseph remained frozen to her side, not touching but not parting either. Amber took a step forward to lead her son, knowing this awkward silence was her fault, a challenge to fix.
+Joseph remained frozen to her side, not touching but not parting, either. Amber took a step forward to lead her son, knowing this awkward silence was her fault, and challenge she had to fix.
 
 “Joseph,” she said “This is your father.” She climbed the steps until she stood on the cedar planks of the porch.
 
@@ -258,25 +266,25 @@ Joseph remained frozen to her side, not touching but not parting either. Amber t
 
 Jeremy closed the distance, offering a hand. “There hasn’t been a day that I haven’t thought about you.”
 
-Joseph extended his hand only to be pulled into a fierce hug. At six foot three he was only a few inches shorter than his father, but not quite as massive, but the resemblance was undeniable.
+Joseph extended his hand only to be pulled into a fierce hug. At six foot three he was only a few inches shorter than his father, but not quite as massive, and the resemblance was undeniable.
 
 Jeremy held on to his son with his eyes closed and his nostrils flared as if learning a precious new scent. Joseph didn’t move and his discomfort became obvious as the embrace prolonged into another awkward silence.
 
-Jeremy finally stepped back and gave a sad knowing smile. “You’re tall for your age.” He gave Joseph a playful squeeze on his shoulder as if he couldn’t stop touching him, not yet…“and strong.”
+Jeremy finally stepped back and gave a sad, knowing smile. “You’re tall for your age,” he gave Joseph a playful squeeze on his shoulder as if he couldn’t stop touching him. “And strong.”
 
 Joseph grimaced under the compliments. “I work out every day and mom makes me drink protein shakes.”
 
-Amber felt a gentle hand on her arm as her mother came up beside her. Some of her tension eased with the unspoken support. You are loved, that gesture said, no matter what.
+Amber felt a gentle hand on her arm as her mother came up beside her. Some of her tension eased with the unspoken support. *You are loved,* that gesture said, *no matter what.*
 
 Amber squeezed her mother’s hand, so very thankful to have her there at that moment. It made her wonder whether things might have been different back then if only one person had been on her side.
 
- The seclusion might have been tolerable.
+The seclusion might have been tolerable.
 
 Ginny Rose cleared her throat, her sharp brown eyes assessing Jeremy with a haughty distain. She was just as protective of her child as Amber was of Joseph. “The amount of food my grandson puts away could feed a small army.”
 
-Amber cleared her throat. “Mom, this is Jeremy, Jeremy my mother.”
+Amber cleared her throat. “Mom, this is Jeremy. Jeremy, my mother.”
 
-“You may call me Ginny,’ her chin rose in challenge, although her voice remained polite.
+“You may call me Ginny," her chin rose in challenge, although her voice remained polite.
 
 “Ginny.” He gave her a brief nod. If he was displeased with her presence it didn’t show. “Please, call me Jeremy.”
 
@@ -286,18 +294,20 @@ Amber cleared her throat. “Mom, this is Jeremy, Jeremy my mother.”
 
 Jeremy pinned her with those black eyes, his expression unreadable. “I would like nothing more, Joseph, but your Aunt Akasha is anxious to meet you. She’s waiting for us at the clinic. I don’t know how long her patience will last.”
 
-“Okay.” Joseph’s expression turned thoughtful. “Can we eat first?” a slight smile tugged at Jeremy’s lips. “I believe a small feast is being prepared for you at this very moment.”
+“Okay.” Joseph’s expression turned thoughtful. “Can we eat first?” 
 
-“Cool. Can mom come too?”
+A slight smile tugged at Jeremy’s lips. “I believe a small feast is being prepared for you at this very moment.”
 
-Of course, Ashlynn, my cook, “Jeremy explained, “is making your mother’s favorite. Your grandmother is welcome as well.”
+“Cool. Can mom come, too?”
 
-“I’ll pass, Ginny interjected. “But I appreciate the offer. I’ll stay behind and unpack.”
+"Of course. Ashlynn, my cook, is making your mother’s favorite. Your grandmother is welcome as well.”
 
-“Are you sure mom?” Amber asked. “We could just put the food in the fridge and I’ll unpack later.”
+“I’ll pass," Ginny interjected. “But I appreciate the offer. I’ll stay behind and unpack.”
+
+“Are you sure, mom?” Amber asked. “We could just put the food in the fridge and I’ll unpack the rest later.”
 
 “It’s been a long day and I’m tired.” Ginny pinned her daughter with a meaningful gaze. “But you need to do this.”
 
-“Did you hear that mom?” Joseph’s dark eyes twinkled with mischief. “Ashlynn, his cook, is making your favorite.”
+“Did you hear that, mom?” Joseph’s dark eyes twinkled with mischief. “Ashlynn, his cook, is making your favorite.”
 
-“I heard.” Her stomach gave her a small heave of protest.
+“I heard,” Amber replied, and her stomach gave a small heave of protest.
