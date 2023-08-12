@@ -20,9 +20,9 @@ She took a sip from her glass. “Cody said you wanted to see me?”
 
 At one time, the Guardians wrongly believed that surreal instincts might call the wolf.
 
-Not so for Akasha, no matter how brutal the sessions. And since a shift never occurred, two thin scars remained on either side of her lower spine. The torture had been administered under the surface to produce the maximum amount of pain with the least damage. Their mother, if anything, was prudent. Ginny would not have threatened her daughter’s beauty. Beauty had value. Sanity, not so much.
+Not so for Akasha, no matter how brutal the sessions. And since a shift never occurred, two thin scars remained on either side of her lower spine. The torture had been administered under the surface to produce the maximum amount of pain with the least damage. Their mother, if anything, was prudent. Kihanna would not have threatened her daughter’s beauty. Beauty had value. Sanity, not so much.
 
-Akasha looked up, and then frowned. “You thinking of Ginny?”
+Akasha looked up, and then frowned. “You thinking of Kihanna?”
 
 Jeremy forced a smile. “Do you read minds now, too?”
 
@@ -32,7 +32,7 @@ Jeremy forced a smile. “Do you read minds now, too?”
 
 Her eyes widened. Had he never apologized? No, he supposed not. Apologies were for the weak.
 
-Akasha swallowed hard and then took a deep breath, gathering courage to voice difficult memories. “Please don’t regret what cannot be changed. Everything happens for a reason. You were only thirteen and Cody needed you more. Ginny would have killed our brother, but not me.” Her voice softened to a whisper. “Besides, you came back for me.”
+Akasha swallowed hard and then took a deep breath, gathering courage to voice difficult memories. “Please don’t regret what cannot be changed. Everything happens for a reason. You were only thirteen and Cody needed you more. Kihanna would have killed our brother, but not me.” Her voice softened to a whisper. “Besides, you came back for me.”
 
 Her words didn’t lessen the guilt. Jeremy suspected they never would. Over sixteen hundred years had passed and he still remembered the night of his brother’s birth with regret.
 
@@ -58,7 +58,7 @@ A few powerful shifters had rejected the Guardians’ demands. Some, like Jeremy
 
 A gathering with these other leaders was long overdue.
 
-“Of course not,” she chided. “And you’re missing the point. In our absence Ginny has become barren of wolves, overrun with sheep and empty hills while we thrive. Our forest is rich with life. We have taken the precautions necessary to make sure that our land is protected against development. For some of us, wolves run through the trees once again; we are blessed.”
+“Of course not,” she chided. “And you’re missing the point. In our absence Kihanna has become barren of wolves, overrun with sheep and empty hills while we thrive. Our forest is rich with life. We have taken the precautions necessary to make sure that our land is protected against development. For some of us, wolves run through the trees once again; we are blessed.”
 
 “Yes,” Jeremy agreed. “Perhaps a little too blessed. It will not be long before we are challenged.”
 
