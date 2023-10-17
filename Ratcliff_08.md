@@ -1,4 +1,5 @@
-Chapter 8
+#Chapter 8
+--
 
 Jeremy found himself at the receiving end of an angry woman’s displeasure, one who should be groveling for forgiveness and not leveling him with a very astute glare.
 
